@@ -1,4 +1,4 @@
-1Качаем 11аккаунты Github для Gitcoin Passport
+1Качаем 11ак22каунты Github для Gitcoin Passport
 
 https://t.me/ponquitter
 
